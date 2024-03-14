@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Xero Skulk
+- 👀 I’m interested in HTML/CSS
+- 🌱 I’m currently learning HTML/CSS
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me at my dc https://discord.gg/MrXrm49Mfb
+- ⚡ Fun fact: I', a psycho
